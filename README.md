@@ -1,1 +1,1 @@
-$${\color{#7d6836}idk \space a \space testa}$$
+$\color{#e0d971}{\textsf{anither test. }}$
