@@ -1,7 +1,9 @@
 
 <div align="center">
 
-<img width="389" height="484" src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled219_20250826154643.png"/>
+<img width="389" height="484" src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled219_20250826154643.png"/><br>
+<a href="https://rentry.co/mozelle"><img src="https://img.shields.io/badge/ren-try-white?style=plastic&labelColor=%23c9ab63"></a> ◞ <a href="https://bealdhild.atabook.org"><img src="https://img.shields.io/badge/ata-book-white?style=plastic&labelColor=%23c9ab63"></a>
+
 
 ${\textsf{\color{#baa752}Brandon or Timmy, meepu works as well,}}$ <br>
 ${\textsf{\color{#a88c45}any pronouns except she/her unless close}}$ <br>
