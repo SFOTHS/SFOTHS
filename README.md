@@ -14,4 +14,4 @@ ${\textsf{\color{#a88c45}any pronouns except she/her unless close}}$ <br>
 
 ${\textsf{\color{#946a34} basic dni , or just use common sense}}$ <br>
 ${\textsf{\color{#805029} i can be VERY DRY sometimes}}$ <br>
-${\textsf{\color{#63321b} thats really all.}}$ <br>
+${\textsf{\color{#63321b} and iwec, thats really all.}}$ <br>
