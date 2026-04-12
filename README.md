@@ -17,7 +17,7 @@
   </tr>
 </table>
 <img width="361" height="20"src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled510_20260412200222.png">
- <a href="https://bealdhild.atabook.org/"><img width="200" height="310" src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled512_20260412230015.png"></a>
+ <a href="https://bealdhild.atabook.org/"><img width="200" height="310" src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled512_20260412230015.png"></a><br>
 <details align="left"><summary> 🎧　𓈒 　 basic info⠀⠀―  ⠀ click me! </summary> ${\textsf{\color{#2b55ed}Brandon}}$ or Zephyre. Any pronouns except she.<br>
 omnisexual genderfluid, but i lean towards masculinity.<br>
 current main interest is eddsworld (yeah no shit).<br>
