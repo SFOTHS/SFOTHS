@@ -22,6 +22,8 @@
 omnisexual genderfluid, but i lean towards masculinity.<br>
 current main interest is eddsworld (yeah no shit).<br>
 more info can be found on my rentry ^_^<br></details> <p align="left"> </>
+</div>
+<div align="center">
 <img width="1000" src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled511_20260412215110.png"><br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Prop+Single&weight=600&size=25&duration=3500&pause=2000&color=0A4DC3&width=435&lines=My++Hands+Are+Twisted+Too." alt="Typing SVG" /></a>
   </div>
