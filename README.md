@@ -2,8 +2,7 @@
 ***
 <div align="center">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Prop+Single&weight=600&size=25&duration=3500&pause=2000&color=0A4DC3&width=435&lines=I'm+a+man%2C+I'm+a+twisted+fool" alt="Typing SVG" /></a>
-</div>
-<img width="1000" src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled511_20260412215110.png">
+ <img width="1000" src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled511_20260412215110.png">
 <img width="389" height="484" src="https://file.garden/ZYrDFz02dgP5Z-Py/Art%20by%20sekosig%20on%20twt" align ="left">
 <table>
   <tr>
@@ -24,7 +23,6 @@ omnisexual genderfluid, but i lean towards masculinity.<br>
 current main interest is eddsworld (yeah no shit).<br>
 more info can be found on my rentry ^_^<br></details> <p align="left"> </>
 <img width="1000" src="https://file.garden/ZYrDFz02dgP5Z-Py/Untitled511_20260412215110.png"><br>
-  <div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Prop+Single&weight=600&size=25&duration=3500&pause=2000&color=0A4DC3&width=435&lines=My++Hands+Are+Twisted+Too." alt="Typing SVG" /></a>
   </div>
   
