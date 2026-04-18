@@ -1,5 +1,3 @@
-### finally remade this
-### github is tweeking what the fuck
 ***
 <div align="center">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Prop+Single&weight=600&size=25&duration=3500&pause=2000&color=0A4DC3&width=435&lines=I'm+a+man%2C+I'm+a+twisted+fool" alt="Typing SVG" /></a>
