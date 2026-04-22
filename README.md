@@ -10,8 +10,8 @@
       ${\textsf{\color{#2b55ed}i dont have a dni and i dont need one, }}$ <br>
       ${\textsf{\color{#2b55ed}as i block freely. i'm not one to use tone}}$ <br>
       ${\textsf{\color{#2b55ed}tags, but please tell me if you need them. }}$ <br>
-      ${\textsf{\color{#2b55ed}most of the times i'm either offtab or}}$ <br>
-      ${\textsf{\color{#2b55ed}waiting for a fsr or fts. idm c+h}}$ <br>
+      ${\textsf{\color{#2b55ed}most of the times i'm either offtab}}$ <br>
+      ${\textsf{\color{#2b55ed}usually have a tamara or any tom skins on}}$ <br>
     </th>
   </tr>
 </table>
