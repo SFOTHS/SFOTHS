@@ -1,4 +1,4 @@
-#### Read Me Looks better In Desktop mode! 
+#### sorrey lmk fans im retheming to hikaru indou :(
 ***
 
 <html>
