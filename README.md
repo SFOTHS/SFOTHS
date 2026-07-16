@@ -1,4 +1,4 @@
-#### sorrey lmk fans im retheming to hikaru indou :(
+#### not gonna bother themeing, will do so when i feel like it :/
 
 ***
 
