@@ -8,5 +8,5 @@ omnisexual genderfluid, yh thats it -_---<br>
 here are my typology things for those who are<br>
 interested on typology, still learning and<br>
 reading on some ::<br>
-ISFP . sx/so . e4 . 461<br>
-. R[L]uEi . Mo[H]wDrg. <br>
+ISFP . sp/sx . e4 . 469<br>
+. R[L]uEn . Mo[H]wDrg. <br>
