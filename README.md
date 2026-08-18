@@ -6,3 +6,7 @@
 ${\textsf{\color{#662e2c}(..◜ᴗ◝..)}}$ ${\textsf{\color{#f7d0b0}Brandon ㅤou ㅤzephyre}}$ <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/06/E9CB8340-43EE-4E11-838D-8EA081562BB5.gif"> <br>
 ${\textsf{\color{#f0be89}any prn xcept she}}$ ⭐ ${\textsf{\color{#f0be89}omni gfluid}}$ <br>
 🖌 ${\textsf{\color{#82bd98}interact with care.}}$ ${\textsf{\color{#fff}no c+h unless stated}}$
+
+***
+
+thank you @pt-fashion @pt-awards @pt-walk-of-fame  for teh nominations❤❤❤
