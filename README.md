@@ -10,3 +10,4 @@ ${\textsf{\color{#f0be89}any prn xcept she}}$ ⭐ ${\textsf{\color{#f0be89}omni 
 ***
 
 thank you @pt-fashion @pt-awards @pt-walk-of-fame  for teh nominations❤❤❤
+cant be bothered to actually tag them because i'm lazy
