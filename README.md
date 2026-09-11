@@ -9,5 +9,6 @@ ${\textsf{\color{#f0be89}any prn xcept she}}$ ⭐ ${\textsf{\color{#f0be89}omni 
 
 ***
 
-thank you @pt-fashion @pt-awards @pt-walk-of-fame  for teh nominations❤❤❤
-cant be bothered to actually tag them because i'm lazy
+thank you @pt-fashion @pt-awards @pt-walk-of-fame  for teh nominations❤❤❤<br>
+cant be bothered to actually tag them because i'm lazy<br>
+<img src="https://files.catbox.moe/iichy7.png" width="213">⠀ i feel honored oh mein gott ty @pt-hall-of-media
